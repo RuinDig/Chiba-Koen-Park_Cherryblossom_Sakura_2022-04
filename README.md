@@ -1,4 +1,5 @@
 # Chiba-Koen-Park_Cherryblossom_Sakura_2022-04
+千葉公園の桜。撮影時期：2022年4月
 
 ![Chiba-Koen-Park_Cherryblossom_Sakura_2022-04_001](https://user-images.githubusercontent.com/20723919/163571167-21393777-ef83-42e1-948d-fb6270fd2956.jpg)
 
